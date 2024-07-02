@@ -6,7 +6,7 @@ Reading and practicing writing daily has been the standard advice for improving 
 
 Though its hard to quantify due to the subjective nature of writing, I have found this challenge has given me a new way of scrutinizing my own work. Although I broke the one paragraph rule a few times, the fact I had to keep most of them to only a paragraph forced me to weigh every word. As a result, my writing has become more concise, a quality that I lacked up until this challenge.
 
-## Fair warning
+## Content warning
 
 Some of my snippets could be considered rated R in nature due to violence and mild sexual themes. Specifically days 11, 13, 24, 28, and 29. Reader discretion advised for those days.
 
