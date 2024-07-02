@@ -1,0 +1,5 @@
+# Day 25: Light
+The night was moonless, and I was hopelessly lost without its cast. I wandered through the dim ultraviolet trees blindly, knowing at any point, my life could end in the belly of some nocturnal beast. Trudging through the dark, I did the same job I’d done every night for the past month, but found it difficult without the moon. 
+Then, as if my prayers were answered, a twinkling light appeared in the abyss as I scaled over a rocky ridge. Hopeful purpose flooded my senses. I glided down, following it as my new north star. Its brilliance, so promising. Clarity consumed me. Brighter it grew as I drew closer, and closer. I raced forward, diving into it as if flying through the closing gates of Heaven. 
+Lightning shot through my body. An excruciating pain lasted the rest of my life as the light began to fade. The wind ripped through my wings as I fell to the porch in a fatal spin, to an endless field littered with the corpses of dead brothers. 
+“Damn moths,” I heard a giant say, as coarse bristles swept me into my grave.

@@ -1,0 +1,2 @@
+# Day 19: Plunge
+Cross legged, I sat with tear stained cheeks, staring at the familiar child through the portal. I touched the opening, still and reflective like calm water, as the kid smiled and nodded encouragingly. Timidly, I stepped through into a world of clarity and color. My skin started to glow. The kid glowed too. In the sky, I saw the stars connect to each other in a network of golden webs. When I looked back down, the child was dispersing in sparkles, floating away like the seeds of a dandelion. Grasping my head, I squatted, and irrevocably changed forever.

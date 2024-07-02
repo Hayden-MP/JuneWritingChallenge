@@ -1,3 +1,2 @@
 # Day 1: Lost Love
-
 I made you my muse. You’ll never know. I kept my distance and surreptitiously admired you from afar. After all, you were never mine to keep; I never wanted to keep you. For look how beautifully you carried freedom, I couldn’t be the one to take it from you. And I was, in a way, afraid of knowing you. So, I watched you go, maundered by as you bloomed brilliantly from a crack in the concrete, and still today reminisce on all the ways you captivated me.

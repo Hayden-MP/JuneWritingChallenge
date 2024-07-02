@@ -1,0 +1,4 @@
+# Day 20: Lurid Colors
+Josh left his house in a rush. Hot summer sun soaked into his black hair, black hoodie, and black jeans. Shuffling through town, he passed by groups of preppy teens in their bright pink polos and white shorts. They turned their noses up as he passed. 
+Music boomed from the subwoofers of a cyan-wrapped Camaro at an intersection as Josh paced over the crosswalk. One of the guys inside called him a goth freak from the driver's side window. Josh jabbed his black-polished middle finger at them. The Camaro revved, making Josh flinch and hurry to the other side as the guys inside laughed.
+Drenched in sweat, he approached his destination: the cluttered tables outside the entrance to the local pet store. Old women in blue aprons were already moving puppies from the animal shelter crates to the gated playpens intended for adoption. “Sorry I’m late,” Josh said, as he came to and put his volunteer name tag on his hoodie. “Let me help you with that.”

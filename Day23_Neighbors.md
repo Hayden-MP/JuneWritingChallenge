@@ -1,0 +1,2 @@
+# Day 23: Neighbors
+City breeze carried in sirens, burnouts, and smog. Her window faced into the ordered chaos of millions of intelligent, selfish beings littering the view in stained apartment buildings and running air conditioning units. Glimmers of a mylar balloon hung suspended above a ledge across the street. It’d been there wishing happy birthday for over a week now, rotating steadily on a pinned string. She’d stare at it, and wondered whether she’d watch it get put out of its misery, or witness its slow descent to death. 

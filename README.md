@@ -8,7 +8,7 @@ Though its hard to quantify due to the subjective nature of writing, I have foun
 
 ## Fair warning
 
-Some of my snippets could be considered rated R in nature due to violence and mild sexual themes. Specifically days 11, 13, 24, and 29. Reader discretion advised for those days.
+Some of my snippets could be considered rated R in nature due to violence and mild sexual themes. Specifically days 11, 13, 24, 28, and 29. Reader discretion advised for those days.
 
 ## Challenge specifics
 
